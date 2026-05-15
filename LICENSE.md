@@ -1,4 +1,4 @@
-
+Inteligente DayZ trapaça mira é o melhor DayZ trapaça mira com munição ilimitada e sem recuo. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
